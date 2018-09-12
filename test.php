@@ -4,3 +4,8 @@ sdfdsflkdsfdsfds
 fclosedsf
 sd
 fclosedsff
+dsflkdsnfkldsfdsf
+dsflkdsnfkldsfdsfds
+forward_static_callf
+sdfdsflkdsfdsff
+dsflkdsnfkldsfdsffds
